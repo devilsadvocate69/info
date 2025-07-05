@@ -1,5 +1,5 @@
-# INFO ✷
-It only takes a reason to kill
+# INFO ✷ // ***ALMOST OUTDATED INFORMATION. DO NOT TAKE HALF OF THE INFORMATION HERE SERIOUSLY.***
+its only takes a reason to kill
 ***
 hello !
 its my info. its abbreviated. everything else is in straw.page. apologize in advance for mistakes! writing through a translator
